@@ -4,7 +4,7 @@ Headline
 Experience the Authentic Taste of South Africa
 
 Introduction
-
+ 
 Welcome to Taste of Mzansi, where tradition and flavor come together. Located in Pretoria, our restaurant celebrates the rich heritage of South African cuisine with freshly prepared traditional dishes made using authentic recipes and ingredients.
 
 Whether you're a local craving a taste of home or a visitor exploring South African culture, Taste of Mzansi offers a warm and memorable dining experience.
